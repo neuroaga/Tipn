@@ -1,1 +1,0 @@
-Tekst pierwszego pliku
